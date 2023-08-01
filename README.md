@@ -1,1 +1,1 @@
-My first readme
+MAnuted na bastaerd
